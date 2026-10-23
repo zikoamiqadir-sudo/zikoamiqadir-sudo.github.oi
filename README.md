@@ -1,1 +1,0 @@
-# zikoamiqadir-sudo.github.oi
